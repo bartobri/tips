@@ -9,7 +9,7 @@ I do it out of love. So any tips are greatly appreciated.
 
 PayPal
 ------
-Send tips to "bartobrian@gmail.com" or [follow this link](https://www.paypal.me/BrianBarto).
+Send tips to bartobrian@gmail.com or [follow this link](https://www.paypal.me/BrianBarto).
 
 Bitcoin
 -------
