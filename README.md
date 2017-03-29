@@ -10,3 +10,7 @@ I do it out of love. So any tips are greatly appreciated.
 PayPal
 ------
 Send tips to "bartobrian@gmail.com" or [follow this link](https://www.paypal.me/BrianBarto).
+
+Bitcoin
+-------
+Tip address: 19fy9CsJvN39f3dV6MJy6FfvggP5zunh5j
