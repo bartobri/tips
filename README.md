@@ -8,8 +8,5 @@ get paid for it. Tips are greatly appreciated.
 
 Paypal: Send to bartobrian@gmail.com or [follow this link](https://www.paypal.me/BrianBarto).
 
-Bitcoin: 19fy9CsJvN39f3dV6MJy6FfvggP5zunh5j
+Bitcoin: 13Wy1M4qX3uhotohmBDTkqRULRngZAdxdN
 
-Ethereum: dc711e5e4cad4912cbd06f1f136bef05643ce3f0
-
-Litecoin: LQSWiz3cKGDMLuFZqF7osUaxhSNJXxBtkD
